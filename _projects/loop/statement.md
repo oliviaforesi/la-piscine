@@ -31,3 +31,6 @@ Este trabajo utiliza la tecnología para cuestionarla, buscando generar una refl
 AIRA, César. (2013, 2016). _“Sobre el arte contemporáneo” en Sobre el arte contemporáneo_. Buenos Aires: Literatura Random House.
 
 ARNS, Inke. (2005). _"El código como acto de habla performativo"_. En Revista Artnodes.
+
+**Música**
+Cjbeards (2023). _Sticks And Stones (feat. Scarlett)_ (TMSC REMIX)
