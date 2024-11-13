@@ -33,4 +33,5 @@ AIRA, César. (2013, 2016). _“Sobre el arte contemporáneo” en Sobre el arte
 ARNS, Inke. (2005). _"El código como acto de habla performativo"_. En Revista Artnodes.
 
 **Música**
+
 Cjbeards (2023). _Sticks And Stones (feat. Scarlett)_ (TMSC REMIX)
